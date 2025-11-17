@@ -1,1 +1,1 @@
-Live Link:- https:///furkanyeasin.github.io/carousel/
+Live Link:- https://furkanyeasin.github.io/carousel
